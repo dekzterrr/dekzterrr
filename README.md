@@ -3,7 +3,8 @@
 ⠀⠀⠀⠀⠀ $\color{#970707}{\textbf{\textit{\textsf{❝𝙀𝙫𝙚𝙧𝙮 𝙜𝙡𝙖𝙣𝙘𝙚 𝙞𝙨 𝙡𝙤𝙖𝙙𝙚𝙙 𝙜𝙪𝙣.❞}}}}$
 
 
-<img width="1092" height="457" alt="IMG_20261011_004521" src="https://github.com/user-attachments/assets/f6719044-8b3d-44f0-b4d2-77a1a2bacc24" />
+<img width="1092" height="457" alt="IMG_20261011_020820" src="https://github.com/user-attachments/assets/5c63d483-6759-480b-832a-ccbb1383efa8" />
+
 
 ⠀
 ⠀
